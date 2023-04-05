@@ -1,1 +1,1 @@
-My first readme
+The jounery has not been easy but is worthed
